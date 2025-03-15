@@ -14,7 +14,7 @@
 
 
 
-[atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://chaotixteam.straw.page)
+[atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://messengerofthegods.straw.page)
 
 ![](https://files.catbox.moe/1787ug.png) ![](https://files.catbox.moe/v1muql.png)
 
